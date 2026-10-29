@@ -1,1 +1,0 @@
-# Kuiz-Trivia-AI-dalam-Pendidikan
